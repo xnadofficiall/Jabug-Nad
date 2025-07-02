@@ -1,1 +1,0 @@
-# Sc Bug WhatsApp-Nad 
